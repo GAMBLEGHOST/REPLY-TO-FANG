@@ -17,7 +17,7 @@ my connie
 and the old connie of mine which is same (almost)
 ![1000012875](https://github.com/user-attachments/assets/097204c3-810b-4c00-8549-7d50c6c00c38)
 
-i can tell the shading is same, but theres inspo/copy.
+i cant tell the shading is same, but theres inspo/copy.
 ![1000012869](https://github.com/user-attachments/assets/12ba209c-c85b-4970-9bdd-6c12cebb11c4)
 
 first i accepted your apologize, fang. 
