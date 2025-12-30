@@ -22,6 +22,11 @@ and the old connie of mine which is same (almost)
 i cant tell the shading is same, but theres inspo/copy.
 ![1000012869](https://github.com/user-attachments/assets/12ba209c-c85b-4970-9bdd-6c12cebb11c4)
 
+![1000012877](https://github.com/user-attachments/assets/33b0b1e5-0c48-4131-a746-6c6b0d5f3642)
+![1000012876](https://github.com/user-attachments/assets/ae8b0660-a710-4040-918b-a3cb99e252a1)
+
+
+
 first i accepted your apologize, fang. 1- 'i see connie as a rockstar idk idk and she canonly has the thing on her neck idk' yeah sure the neck accesory connie has is canon but you can see theres more options than copying the accesories of my conniesona / connie right? And, no i havent seen someone with the bracalet thing with 3 dots on someones connie, even if you still claim people use that too, yes theres atleast some people do use that bracalet for connie but theirs, its not overaccesoried (even if it is, not same as mine.) and yes people use the neck accesory too also the bracalet thing whatever, but not using the same things i do at the same time. no, dont ha yourself for a game, atleast you said sorry but i accepted this one, ok?
 
 ### second, they copied my HUMOR even if it's not very heavy copying of my personality
