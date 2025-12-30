@@ -1,8 +1,10 @@
 ##### DISCLAIMER : THIS ISNT A DOC. I ONLY MENTION ABOUT WHAT THE COPIER DID TO ME (AND MY FRIEND(s) A BIT). MY GRAMMAR IS NOT GOOD, SO I STRUGGLED TO WRITE RIGHT.
 
-#### Hi, ill be telling something im uncomfortable with. and ill explain what did fang do, ( aka @yahoofangs ). and why i writed this down here. 
+#### Hi, ill be telling something im uncomfortable with. and ill explain what did fang do, ( aka @yahoofangs / @M3LTING-F4NGS ). and why i writed this down here. 
 
 ## The first copying they did.
+
+
 
 basically, i dont even know you fang. i heard you were a problematic person, and a copier/w out perms. whatever, i had an old connie i always wear, and a new connie with same stuff almost with the old one and fang made an connie, then after some days i saw fang on, with a similiar connie, firstly i maked sure if it was really fang, he took inspo of me without permission and yes, i was pretty sure bc its the same even if its not a big inspo of me. thought i never want people to copy/take inspo of me without permission. this is the proof, for fang that says "i didnt took inspo/copy anything!!"
 
