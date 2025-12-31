@@ -55,8 +55,12 @@ i dont think i need to explain this one
 
 ![1000012894](https://github.com/user-attachments/assets/5946f77b-5ae9-418c-8b20-ff78140b9f3b)
 
-HELLO?? ALSO CAN YOU LIKE STOP ASKING IF MY SISTER BLOCKED/HID YOU. SHE LITREALLY TOLD SUN,ME THAT YOU WANTED TO CALL LILLY "WELL MOMMY/MOMMY". LIKE. SHES UNCOMFY ABOUT IT AND YOU KEPT ASKING US WHY SHE HID U. I ALR DID TOLD U 🙏
+HELLO?? ALSO CAN YOU LIKE STOP ASKING IF MY SISTER BLOCKED/HID YOU. SHE LITREALLY TOLD SUN,ME THAT YOU WANTED TO CALL LILLY "WELL MOMMY/MOMMY". LIKE. SHES UNCOMFY ABOUT IT AND YOU KEPT ASKING US WHY SHE HID U. I ALR DID TOLD U 🙏 
+
+(yes, lilly told me and sun that your still making lilly uncomfortable, but thats whatever you say ' i didnt mean it in a bad way ' you didnt or did, i wasnt THERE when it was HAPPENING, but lilly did told me shes still not good or either comfortable about what you did
 
 ![1000012893](https://github.com/user-attachments/assets/4c6e32df-b24a-482e-9cd2-ff88e7aed759)
 
+im here again, no i just marked the words bc like i rethemed before and put my sis on my github bio then i think fang changed his bio too ig? tagged lilly and also tagged his brother. no im not saying its bad that u have a brother but like, Its happening to me, ya understand? Im tagging my sister, then after sum time your taggin your brother like I DO NOT KNOW how to explain bc my grammar isnt very well, the thing is youre like stalking my github or something, and you didnt change the stuff unless the one thing i allowed you bc it wasnt a inspo at all from my connie. and you didnt fix the rest, which is im getting bored and mad to you slowly when YOU can just ALREADY STOP.
 
+### also, stop asking my friends if i blocked/hid you, why i keep writing things down here. i am 15 yes dont intreact to my friends about me or i report u to pony town team soon lmaoo
