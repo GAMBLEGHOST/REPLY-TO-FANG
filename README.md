@@ -27,19 +27,25 @@ i cant tell the shading is same, but theres inspo/copy.
 
 
 
-first i accepted your apologize, fang. 1- 'i see connie as a rockstar idk idk and she canonly has the thing on her neck idk' yeah sure the neck accesory connie has is canon but you can see theres more options than copying the accesories of my conniesona / connie right? And, no i havent seen someone with the bracalet thing with 3 dots on someones connie, even if you still claim people use that too, yes theres atleast some people do use that bracalet for connie but theirs, its not overaccesoried (even if it is, not same as mine.) and yes people use the neck accesory too also the bracalet thing whatever, but not using the same things i do at the same time. no, dont ha yourself for a game, atleast you said sorry but i accepted this one, ok?
+first i accepted your apologize, fang. 1- 'i see connie as a rockstar idk idk and she canonly has the thing on her neck idk' yeah sure the neck accesory connie has is canon but you can see theres more options than copying the accesories of my conniesona / connie right? And, no i havent seen someone with the bracalet thing with 3 dots on someones connie, even if you still claim people use that too, yes theres atleast some people do use that bracalet for connie but theirs, its not overaccesoried (even if it is, not same as mine.) and yes people use the neck accesory too also the bracalet thing whatever, but not using the same things i do at the same time. no, dont HARM yourself for a game, atleast you said sorry but i accepted this one, ok?
 
-### second, they copied my HUMOR even if it's not very heavy copying of my personality
+### second, they copied my HUMOR even if it's not very heavy copying of my personality.
 
 after one day the time i made this readme, again. i will never even listen to fang after this. its enough bc i never got copied, atleast not even my personality before, even they tagged me and my some friends on their bio. no one gived permission to you fang. im not comfortable with you copying anything, ANYTHING about me my friends or tagging me on your bio! so please.
 
 " i didnt copy anything abt u!! i dont wanna have enemies like you!!" 
 yeah. then they started copying my personality (my humor first) in a day, and i didnt even say anything. SPEECHLESS. i finded it out myself while i was ontab, when i changed to a skin fang copied the face on a glisten pony, saying "pls speed i need this.." "my mom is kind of homeless" which i did a sec ago while i was with my friends, yes its not same yet but they do it after me, like stalking or copying personality, stealing lines is not something nice right? fang said it right after i say the same thing and my friends sun say one w different line. even they copied sum lines my friend use which is their line. (sun / @fieldofstrawberries) thats it for now ig,, 
 
-so please do not intreact or copy/ take inspo, right? i have problematic and copier people on my DNI list, if you make any reply/stuff about me, theres surely big claimers of im telling you to not COPY me again.
+so please do not intreact or copy/ take inspo, right?
+
+i have problematic and copier people on my DNI list, if you make any reply/stuff about me, theres surely big claimers of im telling you to not COPY me again.
 
 Fang, Pls dni.
+
+
 Im not comfortable with the inspos/copying of my connie without permission.
+
+
 Do Not Intreact with me, or talk anything about me. just leave me alone okayy?
 
 
