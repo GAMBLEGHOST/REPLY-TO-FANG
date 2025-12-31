@@ -1,4 +1,4 @@
-##### DISCLAIMER : THIS ISNT A DOC. I ONLY MENTION ABOUT WHAT THE COPIER DID TO ME (AND MY FRIEND(S) A BIT). MY GRAMMAR IS NOT GOOD, SO I STRUGGLED TO WRITE RIGHT.
+##### DISCLAIMER : I ONLY MENTION ABOUT WHAT THE COPIER DID TO ME (AND MY FRIEND(S) A BIT). MY GRAMMAR IS NOT GOOD, SO I STRUGGLED TO WRITE RIGHT.
 
 #### Hi, ill be telling something im uncomfortable with. and ill explain what did fang do, ( aka @yahoofangs / @M3LTING-F4NGS ). and why i writed this down here. 
 
@@ -55,6 +55,7 @@ i dont think i need to explain this one
 
 ![1000012894](https://github.com/user-attachments/assets/5946f77b-5ae9-418c-8b20-ff78140b9f3b)
 
+HELLO?? ALSO CAN YOU LIKE STOP ASKING IF MY SISTER BLOCKED/HID YOU. SHE LITREALLY TOLD SUN,ME THAT YOU WANTED TO CALL LILLY "WELL MOMMY/MOMMY". LIKE. SHES UNCOMFY ABOUT IT AND YOU KEPT ASKING US WHY SHE HID U. I ALR DID TOLD U 🙏
 
 ![1000012893](https://github.com/user-attachments/assets/4c6e32df-b24a-482e-9cd2-ff88e7aed759)
 
