@@ -1,4 +1,4 @@
-##### DISCLAIMER : THIS ISNT A DOC. I ONLY MENTION ABOUT WHAT THE COPIER DID TO ME (AND MY FRIEND(s) A BIT). MY GRAMMAR IS NOT GOOD, SO I STRUGGLED TO WRITE RIGHT.
+##### DISCLAIMER : THIS ISNT A DOC. I ONLY MENTION ABOUT WHAT THE COPIER DID TO ME (AND MY FRIEND(S) A BIT). MY GRAMMAR IS NOT GOOD, SO I STRUGGLED TO WRITE RIGHT.
 
 #### Hi, ill be telling something im uncomfortable with. and ill explain what did fang do, ( aka @yahoofangs / @M3LTING-F4NGS ). and why i writed this down here. 
 
@@ -40,7 +40,7 @@ so please do not intreact or copy/ take inspo, right?
 
 i have problematic and copier people on my DNI list, if you make any reply/stuff about me, theres surely big claimers of im telling you to not COPY me again.
 
-Fang, Pls dni.
+i am pretty sure you copy anything about me, and i do not want you to copy even one thing, okay sure buddy keep saying you didnt copy anything about me, plus if you want this story to END, you have to stop copying stuff about me, idk/idc about others.
 
 
 Im not comfortable with the inspos/copying of my connie without permission.
