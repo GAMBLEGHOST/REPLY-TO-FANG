@@ -63,4 +63,4 @@ HELLO?? ALSO CAN YOU LIKE STOP ASKING IF MY SISTER BLOCKED/HID YOU. SHE LITREALL
 
 im here again, no i just marked the words bc like i rethemed before and put my sis on my github bio then i think fang changed his bio too ig? tagged lilly and also tagged his brother. no im not saying its bad that u have a brother but like, Its happening to me, ya understand? Im tagging my sister, then after sum time your taggin your brother like I DO NOT KNOW how to explain bc my grammar isnt very well, the thing is youre like stalking my github or something, and you didnt change the stuff unless the one thing i allowed you bc it wasnt a inspo at all from my connie. and you didnt fix the rest, which is im getting bored and mad to you slowly when YOU can just ALREADY STOP.
 
-### also, stop asking my friends if i blocked/hid you, why i keep writing things down here!! i am 15 yes dont intreact to my friends about me or i report u to pony town team soon if u contunie lmaoo
+### also, stop asking my friends if i blocked/hid you, why i keep writing things down here!! yes dont intreact to my friends about me or i report u to pony town team soon if u contunie lmaoo
