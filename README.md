@@ -1,8 +1,8 @@
-##### DISCLAIMER : I ONLY MENTION ABOUT WHAT THE COPIER DID TO ME (AND MY FRIEND(S) A BIT). MY GRAMMAR IS NOT GOOD, SO I STRUGGLED TO WRITE RIGHT.
+#####  I ONLY MENTION ABOUT WHAT THE COPIER DID TO ME (AND MY FRIEND(S) A BIT). MY GRAMMAR IS NOT GOOD, SO I STRUGGLED TO WRITE RIGHT.
 
-#### Hi, ill be telling something im uncomfortable with. and ill explain what did fang do, ( aka @yahoofangs / @M3LTING-F4NGS ). and why i writed this down here. 
+#### Hi, ill be telling something im uncomfortable with. and ill explain what did fang do, ( aka @brokenflakes ). and why i writed this down here. 
 
-## The first copying they did.
+## The first thing happened
 
 
 
