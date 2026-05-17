@@ -1,8 +1,4 @@
-#####  I ONLY MENTION ABOUT WHAT THE COPIER DID TO ME (AND MY FRIEND(S) A BIT). MY GRAMMAR IS NOT GOOD, SO I STRUGGLED TO WRITE RIGHT.
 
-#### Hi, ill be telling something im uncomfortable with. and ill explain what did fang do, ( aka @brokenflakes ). and why i writed this down here. 
-
-## The first thing happened
 
 
 
@@ -22,45 +18,3 @@ and the old connie of mine which is same (almost)
 i cant tell the shading is same, but theres inspo/copy.
 ![1000012869](https://github.com/user-attachments/assets/12ba209c-c85b-4970-9bdd-6c12cebb11c4)
 
-![1000012877](https://github.com/user-attachments/assets/33b0b1e5-0c48-4131-a746-6c6b0d5f3642)
-![1000012876](https://github.com/user-attachments/assets/ae8b0660-a710-4040-918b-a3cb99e252a1)
-
-
-
-first i accepted your apologize, fang. 1- 'i see connie as a rockstar idk idk and she canonly has the thing on her neck idk' yeah sure the neck accesory connie has is canon but you can see theres more options than copying the accesories of my conniesona / connie right? And, no i havent seen someone with the bracalet thing with 3 dots on someones connie, even if you still claim people use that too, yes theres atleast some people do use that bracalet for connie but theirs, its not overaccesoried (even if it is, not same as mine.) and yes people use the neck accesory too also the bracalet thing whatever, but not using the same things i do at the same time. no, dont HARM yourself for a game, atleast you said sorry but i accepted this one, ok?
-
-### second, they copied my HUMOR even if it's not very heavy copying of my personality.
-
-after one day the time i made this readme, again. i will never even listen to fang after this. its enough bc i never got copied, atleast not even my personality before, even they tagged me and my some friends on their bio. no one gived permission to you fang. im not comfortable with you copying anything, ANYTHING about me my friends or tagging me on your bio! so please.
-
-" i didnt copy anything abt u!! i dont wanna have enemies like you!!" 
-yeah. then they started copying my personality (my humor first) in a day, and i didnt even say anything. SPEECHLESS. i finded it out myself while i was ontab, when i changed to a skin fang copied the face on a glisten pony, saying "pls speed i need this.." "my mom is kind of homeless" which i did a sec ago while i was with my friends, yes its not same yet but they do it after me, like stalking or copying personality, stealing lines is not something nice right? fang said it right after i say the same thing and my friends sun say one w different line. even they copied sum lines my friend use which is their line. (sun / @fieldofstrawberries) thats it for now ig,, 
-
-so please do not intreact or copy/ take inspo, right?
-
-i have problematic and copier people on my DNI list, if you make any reply/stuff about me, theres surely big claimers of im telling you to not COPY me again.
-
-i am pretty sure you copy anything about me, and i do not want you to copy even one thing, okay sure buddy keep saying you didnt copy anything about me, plus if you want this story to END, you have to stop copying stuff about me, idk/idc about others.
-
-
-Im not comfortable with the inspos/copying of my connie without permission.
-
-
-Do Not Intreact with me, or talk anything about me. just leave me alone okayy?
-
-
-### third thing of course
-
-i dont think i need to explain this one
-
-![1000012894](https://github.com/user-attachments/assets/5946f77b-5ae9-418c-8b20-ff78140b9f3b)
-
-HELLO?? ALSO CAN YOU LIKE STOP ASKING IF MY SISTER BLOCKED/HID YOU. SHE LITREALLY TOLD SUN,ME THAT YOU WANTED TO CALL LILLY "WELL MOMMY/MOMMY". LIKE. SHES UNCOMFY ABOUT IT AND YOU KEPT ASKING US WHY SHE HID U. I ALR DID TOLD U 🙏 
-
-(yes, lilly told me and sun that your still making lilly uncomfortable, but thats whatever you say ' i didnt mean it in a bad way ' you didnt or did, i wasnt THERE when it was HAPPENING, but lilly did told me shes still not good or either comfortable about what you did
-
-![1000012893](https://github.com/user-attachments/assets/4c6e32df-b24a-482e-9cd2-ff88e7aed759)
-
-im here again, no i just marked the words bc like i rethemed before and put my sis on my github bio then i think fang changed his bio too ig? tagged lilly and also tagged his brother. no im not saying its bad that u have a brother but like, Its happening to me, ya understand? Im tagging my sister, then after sum time your taggin your brother like I DO NOT KNOW how to explain bc my grammar isnt very well, the thing is youre like stalking my github or something, and you didnt change the stuff unless the one thing i allowed you bc it wasnt a inspo at all from my connie. and you didnt fix the rest, which is im getting bored and mad to you slowly when YOU can just ALREADY STOP.
-
-### also, stop asking my friends if i blocked/hid you, why i keep writing things down here!! yes dont intreact to my friends about me or i report u to pony town team soon if u contunie lmaoo
